@@ -1,0 +1,40 @@
+<ul>
+<li><h3>_eljay_: </h3>
+<a id="comment-62"></a>
+<p>have you ever been a lady?<br>
+have you ever dressed as a lady?<br>
+do you wish you were a lady?<br>
+are you a lady?</p>
+<ul>
+<li><h3>obsolete_mind: </h3>
+<a id="comment-64"></a>
+<p>No<br>
+No<br>
+No<br>
+No</p>
+</li>
+</ul>
+</li>
+<li><h3>chrissyk_lotn: </h3>
+<a id="comment-63"></a>
+<p>Hmm, I have been trying my darndest to come up with good questions.<br>
+But I guess these'll have to do<br>
+Have you ever resneted your brother for reasons he cant control?<br>
+What do you think of Ronan?<br>
+What is your biggest dream/ambition in life?<br>
+What is your biggest fear in life?<br>
+(Btw in one of my responses I wrote impenetrable jungle and it should be impenetrable forest - ah well)<br></p>
+<ul>
+<li><h3>obsolete_mind: </h3>
+<a id="comment-65"></a>
+<p>Sometimes, but not really. Only for the fact that he is younger than me, therefore gets away with things more than I do and seems to be liked more than me... I feel I have a good relationship with him anyway.<br>
+<br>
+Ronan, hmm... pretty mixed opinion. Dont get me wrong, we are great friends. I trust him and I can talk to him about stuff. But he's lazy, selfish and arrogant... I think he should get a job and stick at it and do a little more than watch tv all day. Yeah I sit on my computer all day... but I have some communication with the outside world on a daily basis. I dont wanna seem to harsh, I love the guy and we are great friends.<br>
+<br>
+Im really not sure of my biggest single ambition. I dont know exactly what I wanna do in terms of a career or job though. Yeah I like computers, though im not sure what else I am interested in if i was to choose something else. Other than that I believe the most important thing in life is happiness. I want to be happy in whatever I do. I want to travel the world, meet people, have lots of money and plenty of close friends. There's just so much beauty in the world. <br>
+<br>
+Biggest fear... that would have to be being alone and not having anyone to talk to/confide in.</p>
+</li>
+</ul>
+</li>
+</ul>

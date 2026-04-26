@@ -1,0 +1,10 @@
+<ul>
+<li><h3>silentempathy: </h3>
+<a id="comment-88"></a>
+<p>wank</p>
+</li>
+<li><h3>messypup: </h3>
+<a id="comment-89"></a>
+<p>On The Internet..I Talk To People On Msn..Whilst Listening To Music..And I Go On Websites..I Go Through My Faves Seeing If Anything Is Updated.If No One Is On Or Nothing Is Updated I Go Offline..Cause I Get Bored And Theres No Point Sitting Here If Im Bored.So Yep Thats What I Do..Arent I Exciting..Go Me!</p>
+</li>
+</ul>
